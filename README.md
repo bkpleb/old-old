@@ -1,1 +1,0 @@
-# vintagemind.github.io
